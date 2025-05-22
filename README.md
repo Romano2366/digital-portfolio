@@ -41,7 +41,7 @@ I discovered a better alignment between my interests and potential career paths.
 ![image](https://github.com/user-attachments/assets/437df00d-349b-4034-945b-2eddbe1bbf2f)
 
 **S - Situation:**    
-I completed a personality assessment to understand how my traits impact my work and communication style.
+I completed a personality assessment to understand how my traits impact my work and communication style. I submitted it a bit late unfortunately. 
 
 **T - Task:**   
 The task was to identify my dominant personality type and how it can influence career choices and team dynamics.
