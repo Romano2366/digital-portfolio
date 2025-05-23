@@ -2,6 +2,10 @@
 GitHub Portfolio June Assessment
 
 ---
+# Proof of completion
+![image](https://github.com/user-attachments/assets/0b8a9e18-8f88-4c28-8345-532749d9a0bc)
+![image](https://github.com/user-attachments/assets/cd41de8a-7631-4f1d-ba1f-84dc3e9d6adf)
+
 
 # CAREER COUNSELLING
 ![image](https://github.com/user-attachments/assets/18b4fe16-0b17-40a4-9cd8-d19a5d0e2f1f)
